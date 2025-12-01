@@ -1,0 +1,2 @@
+# LP_ICT9Ruby_Q2SkillsTest_Kershaw_Angelica
+AYOKO NAAA
